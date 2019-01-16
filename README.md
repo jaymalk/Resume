@@ -1,5 +1,5 @@
 ## Resume
-****
+
 ### Rajbir Malik
-### B.Tech. IIT Delhi (2021)
+**B.Tech. IIT Delhi (2021)**
 
